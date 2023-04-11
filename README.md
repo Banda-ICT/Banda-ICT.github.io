@@ -1,1 +1,0 @@
-# Banda-ICT.github.io
